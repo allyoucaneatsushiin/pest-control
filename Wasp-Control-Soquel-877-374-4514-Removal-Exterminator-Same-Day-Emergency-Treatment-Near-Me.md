@@ -114,9 +114,9 @@ Don't let wasps control your outdoor spaces or threaten your safety. Our profess
 *Licensed, insured, and trusted throughout Soquel for all stinging insect management needs.*
 
 
-- [Fly Control Waverly NY 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Waverly-NY-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Seneca 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Seneca-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Waterford Township 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Waterford-Township-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Waverly NY 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Waverly-NY-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Seneca 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Seneca-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Waterford Township 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Waterford-Township-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -125,7 +125,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Mosquito Control Randallstown 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Randallstown-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal Circle D KC Estates 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Circle-D-KC-Estates-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Duncanville 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Duncanville-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Columbia SC 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Columbia-SC-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Randallstown 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Randallstown-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Circle D KC Estates 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Circle-D-KC-Estates-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Duncanville 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Duncanville-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Columbia SC 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Columbia-SC-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)

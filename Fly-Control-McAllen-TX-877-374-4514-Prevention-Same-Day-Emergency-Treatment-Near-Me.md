@@ -126,29 +126,29 @@ Don't let flies compromise your health, comfort, or business reputation. Our pro
 *Licensed, insured, and trusted throughout McAllen TX for comprehensive fly management solutions.*
 
 
-- [Bed Bug Removal McAllen TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-McAllen-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control McAllen TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-McAllen-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control McAllen TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-McAllen-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal McAllen TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-McAllen-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control McAllen TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-McAllen-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control McAllen TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-McAllen-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal McAllen TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-McAllen-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control McAllen TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-McAllen-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control McAllen TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-McAllen-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal McAllen TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-McAllen-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control McAllen TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-McAllen-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control McAllen TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-McAllen-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Emergency Pest Control McAllen TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-McAllen-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Pest Control McAllen TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-McAllen-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal McAllen TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-McAllen-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control McAllen TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-McAllen-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Pest Control McAllen TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-McAllen-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal McAllen TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-McAllen-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Roach Control McAllen TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-McAllen-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control McAllen TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-McAllen-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Rodent Control McAllen TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-McAllen-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control McAllen TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-McAllen-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control McAllen TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-McAllen-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control McAllen TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-McAllen-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Mosquito Control McAllen TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-McAllen-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control McAllen TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-McAllen-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control McAllen TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-McAllen-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control McAllen TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-McAllen-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control McAllen TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-McAllen-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control McAllen TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-McAllen-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -157,7 +157,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Roach Control McAllen TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-McAllen-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control McAllen TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-McAllen-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control McAllen TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-McAllen-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control McAllen TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-McAllen-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control McAllen TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-McAllen-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control McAllen TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-McAllen-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control McAllen TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-McAllen-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control McAllen TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-McAllen-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

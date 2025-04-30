@@ -112,19 +112,19 @@ End the frustration of flea bites and the worry of tick-borne diseases. Our prof
 *Licensed, insured, and trusted throughout Upper Freehold for comprehensive parasite control solutions.*
 
 
-- [Pest Control Cedar City 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Cedar-City-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Ocean City MD 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Ocean-City-MD-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control North Highlands 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-North-Highlands-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Pest Control Cedar City 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Cedar-City-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Ocean City MD 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Ocean-City-MD-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control North Highlands 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-North-Highlands-877-374-4514-24-7-Fast-Response-Near-Me.md)
 
 
-- [Rodent Control Wisconsin Rapids 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-Wisconsin-Rapids-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control East Dublin 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-East-Dublin-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Hattiesburg 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Hattiesburg-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Rodent Control Wisconsin Rapids 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-Wisconsin-Rapids-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control East Dublin 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-East-Dublin-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Hattiesburg 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Hattiesburg-877-374-4514-24-7-Fast-Response-Near-Me.md)
 
 
-- [Emergency Pest Control Traverse City MI 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Traverse-City-MI-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Wasp Control Lombard 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Lombard-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Aloha 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Aloha-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Traverse City MI 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Traverse-City-MI-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Wasp Control Lombard 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Lombard-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Aloha 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Aloha-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -133,7 +133,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Mosquito Control Owasso 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Owasso-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control San Mateo 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-San-Mateo-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal Lake Ronkonkoma 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Lake-Ronkonkoma-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Albany 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Albany-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Mosquito Control Owasso 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Owasso-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control San Mateo 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-San-Mateo-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Lake Ronkonkoma 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Lake-Ronkonkoma-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Albany 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Albany-877-374-4514-24-7-Fast-Response-Near-Me.md)

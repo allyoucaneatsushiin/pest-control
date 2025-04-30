@@ -98,9 +98,9 @@ Don't live in fear of yellow jackets around your Franklin Township home or busin
 *Licensed, insured, and trusted throughout Franklin Township for all stinging insect control needs.*
 
 
-- [Wasp Control Palmerton 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Palmerton-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Rancho Palos Verdes 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Rancho-Palos-Verdes-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Spanish Lake 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Spanish-Lake-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Palmerton 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Palmerton-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Rancho Palos Verdes 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Rancho-Palos-Verdes-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Spanish Lake 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Spanish-Lake-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -109,7 +109,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [ANT Control Shady Hills 877 374 4514 Prevention Extermination Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Shady-Hills-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Hannibal MO 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Hannibal-MO-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Glencoe 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Glencoe-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control Beverly 877 374 4514 Prevention Extermination Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Beverly-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Shady Hills 877 374 4514 Prevention Extermination Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Shady-Hills-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Hannibal MO 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Hannibal-MO-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Glencoe 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Glencoe-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Beverly 877 374 4514 Prevention Extermination Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Beverly-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)

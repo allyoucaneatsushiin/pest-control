@@ -112,19 +112,19 @@ End the frustration of flea bites and the worry of tick-borne diseases. Our prof
 *Licensed, insured, and trusted throughout New Miami for comprehensive parasite control solutions.*
 
 
-- [Fly Control Holliston 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Holliston-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Roach Control Upper Arlington 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Upper-Arlington-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Billings MT 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Billings-MT-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Holliston 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Holliston-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Upper Arlington 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Upper-Arlington-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Billings MT 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Billings-MT-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Pest Control Poulsbo 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Poulsbo-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Angola 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Angola-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Sandy 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Sandy-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Poulsbo 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Poulsbo-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Angola 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Angola-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Sandy 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Sandy-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Pest Control Watertown NY 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Watertown-NY-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Peach Lake 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Peach-Lake-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Edgewood 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Edgewood-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Watertown NY 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Watertown-NY-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Peach Lake 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Peach-Lake-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Edgewood 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Edgewood-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -133,7 +133,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Pest Control Chapin 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Chapin-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Mountain City 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Mountain-City-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Grand Island 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Grand-Island-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal Taunton 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Taunton-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Chapin 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Chapin-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Mountain City 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Mountain-City-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Grand Island 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Grand-Island-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Taunton 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Taunton-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

@@ -112,19 +112,19 @@ End the frustration of flea bites and the worry of tick-borne diseases. Our prof
 *Licensed, insured, and trusted throughout North Druid Hills for comprehensive parasite control solutions.*
 
 
-- [Rodent Control Newcastle 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-Newcastle-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal Rockport 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Rockport-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Water Mill 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Water-Mill-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control Newcastle 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-Newcastle-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Rockport 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Rockport-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Water Mill 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Water-Mill-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Wasp Control Towson 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Towson-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control North Tonawanda 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-North-Tonawanda-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Roach Control Fort Hood 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Fort-Hood-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Towson 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Towson-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control North Tonawanda 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-North-Tonawanda-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Fort Hood 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Fort-Hood-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Flea Tick Control The Villages 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-The-Villages-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control Kirkwood 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Kirkwood-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Columbus Grove 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Columbus-Grove-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control The Villages 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-The-Villages-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control Kirkwood 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Kirkwood-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Columbus Grove 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Columbus-Grove-877-374-4514-24-7-Fast-Response-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -133,7 +133,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Rodent Control Novato 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-Novato-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Taylor 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Taylor-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Rodent Control Beckley WV 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-Beckley-WV-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Graton 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Graton-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control Novato 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-Novato-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Taylor 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Taylor-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control Beckley WV 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-Beckley-WV-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Graton 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Graton-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

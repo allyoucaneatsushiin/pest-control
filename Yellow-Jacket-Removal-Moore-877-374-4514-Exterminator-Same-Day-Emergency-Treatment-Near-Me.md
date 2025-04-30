@@ -98,9 +98,9 @@ Don't live in fear of yellow jackets around your Moore home or business. Contact
 *Licensed, insured, and trusted throughout Moore for all stinging insect control needs.*
 
 
-- [Wasp Control King City 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-King-City-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Athens 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Athens-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Willow Park 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Willow-Park-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control King City 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-King-City-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Athens 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Athens-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Willow Park 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Willow-Park-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -109,7 +109,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Rodent Control Eastchester 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-Eastchester-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Sonora 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Sonora-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal Henrietta 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Henrietta-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Roach Control Eureka 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Eureka-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control Eastchester 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-Eastchester-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Sonora 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Sonora-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Henrietta 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Henrietta-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Eureka 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Eureka-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

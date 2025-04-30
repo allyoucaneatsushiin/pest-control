@@ -98,9 +98,9 @@ Don't live in fear of yellow jackets around your Port Saint Joe FL home or busin
 *Licensed, insured, and trusted throughout Port Saint Joe FL for all stinging insect control needs.*
 
 
-- [Wasp Control Port Saint John 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Port-Saint-John-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Maitland FL 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Maitland-FL-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Odenton 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Odenton-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Port Saint John 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Port-Saint-John-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Maitland FL 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Maitland-FL-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Odenton 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Odenton-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -109,7 +109,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Spider Control Saratoga Springs 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Saratoga-Springs-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control Frenchtown 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Frenchtown-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Bend OR 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Bend-OR-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Rodent Control St Louis MO 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-St-Louis-MO-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Saratoga Springs 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Saratoga-Springs-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control Frenchtown 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Frenchtown-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Bend OR 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Bend-OR-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control St Louis MO 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-St-Louis-MO-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

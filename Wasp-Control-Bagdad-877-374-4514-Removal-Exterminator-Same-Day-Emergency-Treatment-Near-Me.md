@@ -114,14 +114,14 @@ Don't let wasps control your outdoor spaces or threaten your safety. Our profess
 *Licensed, insured, and trusted throughout Bagdad for all stinging insect management needs.*
 
 
-- [Rodent Control LaBelle 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-LaBelle-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Griffin 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Griffin-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Missoula 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Missoula-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control LaBelle 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-LaBelle-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Griffin 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Griffin-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Missoula 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Missoula-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Fly Control Stone Mountain 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Stone-Mountain-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Trussville 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Trussville-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [ANT Control Gleed 877 374 4514 Prevention Extermination Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Gleed-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Stone Mountain 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Stone-Mountain-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Trussville 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Trussville-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [ANT Control Gleed 877 374 4514 Prevention Extermination Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Gleed-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -130,7 +130,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Rodent Control North Augusta 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-North-Augusta-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control Galena Park 877 374 4514 Prevention Extermination Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Galena-Park-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Skokie 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Skokie-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Greenfield 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Greenfield-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control North Augusta 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-North-Augusta-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Galena Park 877 374 4514 Prevention Extermination Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Galena-Park-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Skokie 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Skokie-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Greenfield 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Greenfield-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

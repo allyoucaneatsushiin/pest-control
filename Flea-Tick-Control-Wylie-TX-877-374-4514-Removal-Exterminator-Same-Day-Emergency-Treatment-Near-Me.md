@@ -112,29 +112,29 @@ End the frustration of flea bites and the worry of tick-borne diseases. Our prof
 *Licensed, insured, and trusted throughout Wylie TX for comprehensive parasite control solutions.*
 
 
-- [Bed Bug Removal Wylie TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Wylie-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Wylie TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Wylie-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Fly Control Wylie TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Wylie-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Wylie TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Wylie-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Wylie TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Wylie-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Fly Control Wylie TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Wylie-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Wylie TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Wylie-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Wylie TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Wylie-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Fly Control Wylie TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Wylie-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Wylie TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Wylie-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Wylie TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Wylie-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Fly Control Wylie TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Wylie-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [ANT Control Wylie TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Wylie-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Wylie TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Wylie-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Wylie TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Wylie-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Wylie TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Wylie-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Wylie TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Wylie-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Wylie TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Wylie-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Wylie TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Wylie-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Wylie TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Wylie-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Wylie TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Wylie-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Wylie TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Wylie-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Wylie TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Wylie-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Wylie TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Wylie-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [ANT Control Wylie TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Wylie-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal Wylie TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Wylie-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Wylie TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Wylie-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [ANT Control Wylie TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Wylie-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Wylie TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Wylie-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Wylie TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Wylie-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -143,7 +143,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Fly Control Wylie TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Wylie-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Roach Control Wylie TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Wylie-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Wylie TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Wylie-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Wylie TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Wylie-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Wylie TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Wylie-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Wylie TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Wylie-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Wylie TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Wylie-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Wylie TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Wylie-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

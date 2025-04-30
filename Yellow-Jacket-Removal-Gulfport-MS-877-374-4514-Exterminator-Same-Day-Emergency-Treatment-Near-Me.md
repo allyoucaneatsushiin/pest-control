@@ -98,9 +98,9 @@ Don't live in fear of yellow jackets around your Gulfport MS home or business. C
 *Licensed, insured, and trusted throughout Gulfport MS for all stinging insect control needs.*
 
 
-- [Mosquito Control Sayreville 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Sayreville-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Rodent Control Gibsonton FL 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-Gibsonton-FL-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal DeForest 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-DeForest-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Sayreville 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Sayreville-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control Gibsonton FL 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-Gibsonton-FL-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal DeForest 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-DeForest-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -109,7 +109,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Wasp Control Kenilworth 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Kenilworth-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control East Palo Alto 877 374 4514 Prevention Extermination Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-East-Palo-Alto-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal Granite Falls 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Granite-Falls-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Carmel IN 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Carmel-IN-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Kenilworth 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Kenilworth-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control East Palo Alto 877 374 4514 Prevention Extermination Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-East-Palo-Alto-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Granite Falls 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Granite-Falls-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Carmel IN 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Carmel-IN-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

@@ -98,9 +98,9 @@ Don't live in fear of yellow jackets around your Honolulu HI home or business. C
 *Licensed, insured, and trusted throughout Honolulu HI for all stinging insect control needs.*
 
 
-- [Spider Control Garden Grove 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Garden-Grove-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Akron 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Akron-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Charleston 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Charleston-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Garden Grove 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Garden-Grove-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Akron 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Akron-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Charleston 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Charleston-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -109,7 +109,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Emergency Pest Control Hinesville 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Hinesville-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Sun Prairie 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Sun-Prairie-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Roach Control Puyallup 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Puyallup-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Haslet 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Haslet-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Hinesville 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Hinesville-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Sun Prairie 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Sun-Prairie-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Puyallup 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Puyallup-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Haslet 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Haslet-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

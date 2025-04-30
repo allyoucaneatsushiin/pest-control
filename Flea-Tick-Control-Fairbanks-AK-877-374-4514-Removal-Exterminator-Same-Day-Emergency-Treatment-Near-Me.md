@@ -112,19 +112,19 @@ End the frustration of flea bites and the worry of tick-borne diseases. Our prof
 *Licensed, insured, and trusted throughout Fairbanks AK for comprehensive parasite control solutions.*
 
 
-- [Fly Control Gulfport MS 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Gulfport-MS-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Daytona Beach FL 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Daytona-Beach-FL-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Spider Control Yosemite Lakes 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Yosemite-Lakes-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Gulfport MS 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Gulfport-MS-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Daytona Beach FL 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Daytona-Beach-FL-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Spider Control Yosemite Lakes 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Yosemite-Lakes-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Rodent Control Plano 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-Plano-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Roach Control Orangevale 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Orangevale-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Redford Charter Township 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Redford-Charter-Township-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control Plano 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-Plano-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Orangevale 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Orangevale-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Redford Charter Township 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Redford-Charter-Township-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Yellow Jacket Removal Harrodsburg 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Harrodsburg-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control Hattiesburg MS 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Hattiesburg-MS-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control North Tustin 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-North-Tustin-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Harrodsburg 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Harrodsburg-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control Hattiesburg MS 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Hattiesburg-MS-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control North Tustin 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-North-Tustin-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -133,7 +133,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Rodent Control Staten Island NY 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-Staten-Island-NY-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Dallas 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Dallas-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Roach Control Fruitland 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Fruitland-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control Jefferson City MO 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Jefferson-City-MO-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control Staten Island NY 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-Staten-Island-NY-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Dallas 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Dallas-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Fruitland 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Fruitland-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control Jefferson City MO 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Jefferson-City-MO-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

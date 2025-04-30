@@ -98,9 +98,9 @@ Don't live in fear of yellow jackets around your Chattanooga TN home or business
 *Licensed, insured, and trusted throughout Chattanooga TN for all stinging insect control needs.*
 
 
-- [ANT Control Wabash 877 374 4514 Prevention Extermination Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Wabash-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal Gretna LA 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Gretna-LA-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal Grafton 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Grafton-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Wabash 877 374 4514 Prevention Extermination Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Wabash-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Gretna LA 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Gretna-LA-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Grafton 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Grafton-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -109,7 +109,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Pest Control Humble 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Humble-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Kouts IN 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Kouts-IN-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal West Orange 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-West-Orange-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Modesto 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Modesto-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Humble 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Humble-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Kouts IN 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Kouts-IN-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal West Orange 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-West-Orange-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Modesto 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Modesto-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

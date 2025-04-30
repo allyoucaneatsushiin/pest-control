@@ -98,9 +98,9 @@ Don't live in fear of yellow jackets around your Hurricane home or business. Con
 *Licensed, insured, and trusted throughout Hurricane for all stinging insect control needs.*
 
 
-- [Pest Control Lake of the Pines 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Lake-of-the-Pines-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Allentown 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Allentown-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Orcutt 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Orcutt-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Pest Control Lake of the Pines 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Lake-of-the-Pines-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Allentown 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Allentown-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Orcutt 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Orcutt-877-374-4514-24-7-Fast-Response-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -109,7 +109,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Yellow Jacket Removal Mulberry 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Mulberry-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Sammamish 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Sammamish-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Campbell 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Campbell-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Timberwood Park 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Timberwood-Park-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Mulberry 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Mulberry-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Sammamish 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Sammamish-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Campbell 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Campbell-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Timberwood Park 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Timberwood-Park-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

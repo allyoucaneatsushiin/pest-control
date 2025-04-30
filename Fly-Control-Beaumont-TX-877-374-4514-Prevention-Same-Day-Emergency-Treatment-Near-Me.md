@@ -126,29 +126,29 @@ Don't let flies compromise your health, comfort, or business reputation. Our pro
 *Licensed, insured, and trusted throughout Beaumont TX for comprehensive fly management solutions.*
 
 
-- [Bed Bug Removal Beaumont TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Beaumont-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Beaumont TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Beaumont-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Beaumont TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Beaumont-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Beaumont TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Beaumont-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Beaumont TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Beaumont-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Beaumont TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Beaumont-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Beaumont TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Beaumont-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Beaumont TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Beaumont-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Beaumont TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Beaumont-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Beaumont TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Beaumont-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Beaumont TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Beaumont-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Beaumont TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Beaumont-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Emergency Pest Control Beaumont TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Beaumont-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Roach Control Beaumont TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Beaumont-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control Beaumont TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Beaumont-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Beaumont TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Beaumont-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Roach Control Beaumont TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Beaumont-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Beaumont TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Beaumont-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Rodent Control Beaumont TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-Beaumont-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Beaumont TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Beaumont-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Roach Control Beaumont TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Beaumont-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control Beaumont TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-Beaumont-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Beaumont TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Beaumont-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Beaumont TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Beaumont-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Rodent Control Beaumont TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-Beaumont-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Beaumont TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Beaumont-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Beaumont TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Beaumont-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control Beaumont TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-Beaumont-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Beaumont TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Beaumont-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Beaumont TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Beaumont-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -157,7 +157,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Flea Tick Control Beaumont TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Beaumont-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Beaumont TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Beaumont-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Beaumont TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Beaumont-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Roach Control Beaumont TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Beaumont-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control Beaumont TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Beaumont-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Beaumont TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Beaumont-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Beaumont TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Beaumont-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Beaumont TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Beaumont-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

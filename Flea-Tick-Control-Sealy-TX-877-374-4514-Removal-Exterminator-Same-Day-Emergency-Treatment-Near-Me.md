@@ -112,29 +112,29 @@ End the frustration of flea bites and the worry of tick-borne diseases. Our prof
 *Licensed, insured, and trusted throughout Sealy TX for comprehensive parasite control solutions.*
 
 
-- [Bed Bug Removal Sealy TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Sealy-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Sealy TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Sealy-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Fly Control Sealy TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Sealy-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Sealy TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Sealy-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Sealy TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Sealy-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Fly Control Sealy TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Sealy-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Sealy TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Sealy-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Sealy TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Sealy-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Fly Control Sealy TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Sealy-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Sealy TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Sealy-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Sealy TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Sealy-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Fly Control Sealy TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Sealy-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Emergency Pest Control Sealy TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Sealy-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Pest Control Sealy TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Sealy-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Sealy TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Sealy-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Sealy TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Sealy-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Pest Control Sealy TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Sealy-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Sealy TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Sealy-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Spider Control Sealy TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Sealy-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Sealy TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Sealy-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Rodent Control Sealy TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-Sealy-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Sealy TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Sealy-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Sealy TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Sealy-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control Sealy TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-Sealy-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Emergency Pest Control Sealy TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Sealy-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Wasp Control Sealy TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Sealy-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Sealy TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Sealy-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Sealy TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Sealy-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Wasp Control Sealy TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Sealy-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Sealy TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Sealy-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -143,7 +143,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [ANT Control Sealy TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Sealy-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Sealy TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Sealy-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Sealy TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Sealy-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Sealy TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Sealy-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Sealy TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Sealy-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Sealy TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Sealy-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Sealy TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Sealy-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Sealy TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Sealy-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)

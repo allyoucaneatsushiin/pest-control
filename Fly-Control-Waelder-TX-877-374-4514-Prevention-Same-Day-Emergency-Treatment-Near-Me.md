@@ -126,29 +126,29 @@ Don't let flies compromise your health, comfort, or business reputation. Our pro
 *Licensed, insured, and trusted throughout Waelder TX for comprehensive fly management solutions.*
 
 
-- [Bed Bug Removal Waelder TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Waelder-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Waelder TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Waelder-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Waelder TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Waelder-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Waelder TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Waelder-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Waelder TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Waelder-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Waelder TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Waelder-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Waelder TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Waelder-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Waelder TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Waelder-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Waelder TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Waelder-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Waelder TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Waelder-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Waelder TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Waelder-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Waelder TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Waelder-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Yellow Jacket Removal Waelder TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Waelder-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Waelder TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Waelder-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Waelder TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Waelder-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Waelder TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Waelder-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Waelder TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Waelder-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Waelder TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Waelder-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [ANT Control Waelder TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Waelder-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Roach Control Waelder TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Waelder-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Waelder TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Waelder-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [ANT Control Waelder TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Waelder-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Waelder TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Waelder-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Waelder TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Waelder-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
 
 
-- [Mosquito Control Waelder TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Waelder-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Roach Control Waelder TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Waelder-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Waelder TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Waelder-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Waelder TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Waelder-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Waelder TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Waelder-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Waelder TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Waelder-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -157,7 +157,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Flea Tick Control Waelder TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Waelder-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Waelder TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Waelder-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Waelder TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Waelder-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control Waelder TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Waelder-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control Waelder TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Waelder-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Waelder TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Waelder-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Waelder TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Waelder-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Waelder TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Waelder-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)

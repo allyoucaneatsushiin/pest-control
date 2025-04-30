@@ -98,19 +98,19 @@ Don't live in fear of yellow jackets around your Lufkin TX home or business. Con
 *Licensed, insured, and trusted throughout Lufkin TX for all stinging insect control needs.*
 
 
-- [Bed Bug Removal Lufkin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Lufkin-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Lufkin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Lufkin-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Lufkin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Lufkin-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Lufkin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Lufkin-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Lufkin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Lufkin-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Lufkin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Lufkin-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Lufkin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Lufkin-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Lufkin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Lufkin-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Lufkin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Lufkin-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Lufkin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Lufkin-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Lufkin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Lufkin-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Lufkin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Lufkin-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Mosquito Control Lufkin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Lufkin-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Lufkin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Lufkin-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control Lufkin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Lufkin-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Lufkin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Lufkin-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Lufkin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Lufkin-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Lufkin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Lufkin-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -119,7 +119,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Pest Control Lufkin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Lufkin-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control Lufkin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Lufkin-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Lufkin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Lufkin-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Lufkin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Lufkin-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Pest Control Lufkin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Lufkin-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control Lufkin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Lufkin-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Lufkin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Lufkin-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Lufkin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Lufkin-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)

@@ -124,29 +124,29 @@ Don't let rodents compromise your property, health, or peace of mind. Our profes
 *Licensed, insured, and trusted throughout West Lake Hills TX for comprehensive rodent management solutions.*
 
 
-- [Bed Bug Removal West Lake Hills TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-West-Lake-Hills-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-West-Lake-Hills-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-West-Lake-Hills-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal West Lake Hills TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-West-Lake-Hills-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-West-Lake-Hills-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-West-Lake-Hills-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal West Lake Hills TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-West-Lake-Hills-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-West-Lake-Hills-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-West-Lake-Hills-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal West Lake Hills TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-West-Lake-Hills-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-West-Lake-Hills-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-West-Lake-Hills-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [ANT Control El Dorado Hills CA 877 374 4514 Prevention Extermination Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-El-Dorado-Hills-CA-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control El Dorado Hills CA 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-El-Dorado-Hills-CA-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Roach Control El Dorado Hills CA 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-El-Dorado-Hills-CA-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control El Dorado Hills CA 877 374 4514 Prevention Extermination Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-El-Dorado-Hills-CA-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control El Dorado Hills CA 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-El-Dorado-Hills-CA-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Roach Control El Dorado Hills CA 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-El-Dorado-Hills-CA-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Pest Control Granada Hills CA 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Granada-Hills-CA-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-West-Lake-Hills-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control El Dorado Hills CA 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-El-Dorado-Hills-CA-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Granada Hills CA 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Granada-Hills-CA-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-West-Lake-Hills-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control El Dorado Hills CA 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-El-Dorado-Hills-CA-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Pest Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-West-Lake-Hills-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control El Dorado Hills CA 877 374 4514 Prevention Extermination Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-El-Dorado-Hills-CA-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-West-Lake-Hills-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-West-Lake-Hills-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control El Dorado Hills CA 877 374 4514 Prevention Extermination Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-El-Dorado-Hills-CA-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-West-Lake-Hills-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -155,7 +155,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Spider Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-West-Lake-Hills-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control El Dorado Hills CA 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-El-Dorado-Hills-CA-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Granada Hills CA 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Granada-Hills-CA-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-West-Lake-Hills-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-West-Lake-Hills-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control El Dorado Hills CA 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-El-Dorado-Hills-CA-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Granada Hills CA 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Granada-Hills-CA-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-West-Lake-Hills-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

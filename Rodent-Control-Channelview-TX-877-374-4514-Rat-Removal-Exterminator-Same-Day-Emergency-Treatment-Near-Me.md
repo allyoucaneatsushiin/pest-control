@@ -124,29 +124,29 @@ Don't let rodents compromise your property, health, or peace of mind. Our profes
 *Licensed, insured, and trusted throughout Channelview TX for comprehensive rodent management solutions.*
 
 
-- [Bed Bug Removal Channelview TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Channelview-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Channelview TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Channelview-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Channelview TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Channelview-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Channelview TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Channelview-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Channelview TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Channelview-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Channelview TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Channelview-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Channelview TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Channelview-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Channelview TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Channelview-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Channelview TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Channelview-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Channelview TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Channelview-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Channelview TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Channelview-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Channelview TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Channelview-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Pest Control Channelview TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Channelview-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal Channelview TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Channelview-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Channelview TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Channelview-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Channelview TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Channelview-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Channelview TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Channelview-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Channelview TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Channelview-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Mosquito Control Channelview TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Channelview-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Channelview TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Channelview-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Channelview TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Channelview-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Channelview TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Channelview-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Channelview TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Channelview-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Channelview TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Channelview-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Flea Tick Control Channelview TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Channelview-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Channelview TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Channelview-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Channelview TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Channelview-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control Channelview TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Channelview-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Channelview TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Channelview-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Channelview TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Channelview-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -155,7 +155,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Pest Control Channelview TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Channelview-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Roach Control Channelview TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Channelview-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal Channelview TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Channelview-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Channelview TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Channelview-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Channelview TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Channelview-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Channelview TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Channelview-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Channelview TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Channelview-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Channelview TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Channelview-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

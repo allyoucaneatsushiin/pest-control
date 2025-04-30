@@ -98,19 +98,19 @@ Don't live in fear of yellow jackets around your Cedar Park TX home or business.
 *Licensed, insured, and trusted throughout Cedar Park TX for all stinging insect control needs.*
 
 
-- [Bed Bug Removal Cedar Park TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Cedar-Park-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Cedar Park TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Cedar-Park-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Cedar Park TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Cedar-Park-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Cedar Park TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Cedar-Park-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Cedar Park TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Cedar-Park-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Cedar Park TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Cedar-Park-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Cedar Park TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Cedar-Park-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Cedar Park TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Cedar-Park-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Cedar Park TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Cedar-Park-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Cedar Park TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Cedar-Park-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Cedar Park TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Cedar-Park-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Cedar Park TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Cedar-Park-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [ANT Control Cedar Park TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Cedar-Park-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control Melrose Park IL 877 374 4514 Prevention Extermination Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Melrose-Park-IL-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Cedar Park TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Cedar-Park-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Cedar Park TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Cedar-Park-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Melrose Park IL 877 374 4514 Prevention Extermination Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Melrose-Park-IL-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Cedar Park TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Cedar-Park-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -119,7 +119,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Flea Tick Control Melrose Park IL 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Melrose-Park-IL-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Cedar Park TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Cedar-Park-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Roach Control Cedar Park TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Cedar-Park-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal Cedar Park TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Cedar-Park-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control Melrose Park IL 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Melrose-Park-IL-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Cedar Park TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Cedar-Park-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Roach Control Cedar Park TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Cedar-Park-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Cedar Park TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Cedar-Park-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

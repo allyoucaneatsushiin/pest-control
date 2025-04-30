@@ -132,34 +132,34 @@ Don't let another night pass with these unwelcome pests. Contact our Ft. Worth T
 *Licensed, bonded, and insured • EPA-approved methods • Satisfaction guaranteed*
 
 
-- [Emergency Pest Control Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Ft-Worth-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Ft-Worth-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Ft-Worth-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Ft-Worth-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Emergency Pest Control Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Ft-Worth-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Ft-Worth-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Ft-Worth-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Ft-Worth-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Mosquito Control Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Ft-Worth-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Ft-Worth-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Mosquito Control Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Ft-Worth-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Ft-Worth-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Flea Tick Control Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Ft-Worth-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Ft-Worth-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Ft-Worth-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Ft-Worth-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Emergency Pest Control Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Ft-Worth-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Rodent Control Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-Ft-Worth-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Ft-Worth-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-Ft-Worth-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -168,7 +168,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Spider Control Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Ft-Worth-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Roach Control Ft Worth TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Ft-Worth-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Ft Worth TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Ft-Worth-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

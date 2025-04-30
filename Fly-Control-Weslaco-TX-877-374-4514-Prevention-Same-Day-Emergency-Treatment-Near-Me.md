@@ -126,29 +126,29 @@ Don't let flies compromise your health, comfort, or business reputation. Our pro
 *Licensed, insured, and trusted throughout Weslaco TX for comprehensive fly management solutions.*
 
 
-- [Bed Bug Removal Weslaco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Weslaco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Weslaco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Weslaco-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Weslaco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Weslaco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Weslaco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Weslaco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Weslaco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Weslaco-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Weslaco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Weslaco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Weslaco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Weslaco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Weslaco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Weslaco-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Weslaco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Weslaco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Weslaco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Weslaco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Weslaco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Weslaco-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Weslaco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Weslaco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Spider Control Weslaco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Weslaco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal Weslaco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Weslaco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control Weslaco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Weslaco-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Weslaco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Weslaco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Weslaco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Weslaco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Weslaco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Weslaco-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Weslaco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Weslaco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Weslaco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Weslaco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Weslaco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Weslaco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Weslaco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Weslaco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Weslaco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Weslaco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Weslaco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Weslaco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Roach Control Weslaco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Weslaco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Weslaco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Weslaco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Weslaco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Weslaco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Weslaco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Weslaco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Weslaco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Weslaco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Weslaco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Weslaco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -157,7 +157,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Emergency Pest Control Weslaco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Weslaco-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Bed Bug Removal Weslaco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Weslaco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Weslaco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Weslaco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Weslaco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Weslaco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Weslaco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Weslaco-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Bed Bug Removal Weslaco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Weslaco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Weslaco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Weslaco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Weslaco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Weslaco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

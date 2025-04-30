@@ -108,29 +108,29 @@ Don't let spiders compromise your property's safety and your peace of mind. Our 
 *Licensed, bonded, and insured throughout Caldwell TX for comprehensive spider management solutions.*
 
 
-- [Bed Bug Removal Caldwell TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Caldwell-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Caldwell TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Caldwell-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Caldwell TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Caldwell-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Caldwell TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Caldwell-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Caldwell TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Caldwell-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Caldwell TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Caldwell-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Caldwell TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Caldwell-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Caldwell TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Caldwell-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Caldwell TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Caldwell-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Caldwell TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Caldwell-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Caldwell TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Caldwell-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Caldwell TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Caldwell-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Roach Control Caldwell TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Caldwell-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Caldwell TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Caldwell-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Caldwell TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Caldwell-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Caldwell TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Caldwell-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Caldwell TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Caldwell-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Caldwell TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Caldwell-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Flea Tick Control Caldwell TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Caldwell-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Caldwell TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Caldwell-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Caldwell TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Caldwell-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Caldwell TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Caldwell-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Caldwell TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Caldwell-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Caldwell TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Caldwell-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
 
 
-- [Pest Control Caldwell TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Caldwell-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Rodent Control Caldwell TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-Caldwell-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control Caldwell TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Caldwell-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Caldwell TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Caldwell-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control Caldwell TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-Caldwell-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Caldwell TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Caldwell-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -139,7 +139,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [ANT Control Caldwell TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Caldwell-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Caldwell TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Caldwell-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal Caldwell TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Caldwell-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Caldwell TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Caldwell-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Caldwell TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Caldwell-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Caldwell TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Caldwell-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Caldwell TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Caldwell-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Caldwell TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Caldwell-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)

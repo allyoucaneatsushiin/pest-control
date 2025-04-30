@@ -98,19 +98,19 @@ Don't live in fear of yellow jackets around your Dallas TX home or business. Con
 *Licensed, insured, and trusted throughout Dallas TX for all stinging insect control needs.*
 
 
-- [Bed Bug Removal Dallas TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Dallas-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Dallas TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Dallas-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Dallas TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Dallas-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Dallas TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Dallas-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Dallas TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Dallas-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Dallas TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Dallas-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Dallas TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Dallas-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Dallas TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Dallas-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Dallas TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Dallas-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Dallas TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Dallas-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Dallas TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Dallas-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Dallas TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Dallas-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Wasp Control Dallas TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Dallas-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Dallas TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Dallas-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Rodent Control Dallas TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-Dallas-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Dallas TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Dallas-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Dallas TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Dallas-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control Dallas TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-Dallas-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -119,7 +119,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Fly Control Dallas TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Dallas-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Dallas TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Dallas-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control Dallas TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Dallas-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Roach Control Dallas TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Dallas-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Dallas TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Dallas-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Dallas TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Dallas-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Dallas TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Dallas-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Dallas TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Dallas-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

@@ -1,111 +1,42 @@
 import os
 import re
-import random
 
-DISCLAIMER = """*IMPORTANT **Disclaimer:**  
+# Constants
+OLD_REPO_BASE = "https://github.com/allyoucaneatsushiin/plumbing-texas/"
+NEW_REPO_BASE = "https://github.com/allyoucaneatsushiin/pest-control/"
 
-This site [Github.com] is a free service to assist homeowners in connecting with local service providers. All contractors/providers are independent and [Github.com] does not warrant or guarantee any work performed. It is the responsibility of the homeowner to verify that the hired contractor furnishes the necessary license and insurance required for the work being performed. All persons depicted in a photo or video are actors or models and not contractors listed on this site [Github.com].
-"""
+# Regex patterns
+markdown_link_pattern = re.compile(r'\[([^\]]+)\]\((https://github\.com/allyoucaneatsushiin/plumbing-texas/.+?)\)')
+valid_filename_pattern = re.compile(r'^([A-Za-z-]+-\d{3}-\d{3}-\d{4}-[A-Za-z-]+\.md)$')
 
-def extract_city_service(filename):
-    parts = filename.replace('.md', '').split('-')
+# Process all .md files in the current directory
+for filename in os.listdir():
+    if not filename.endswith(".md"):
+        continue
 
-    # Look for "TX", "AZ", etc. to identify the location and city
-    state_identifiers = ['TX', 'AZ', 'NC', 'CA', 'NM', 'SD', 'IL']  # Add other states if needed
-    for state in state_identifiers:
-        if state in parts:
-            tx_index = parts.index(state)
-            city = parts[tx_index - 1]  # City is the part right before the state
-            service = ' '.join(parts[:tx_index - 1])  # Everything before the city is the service name
-            return service.strip(), city.strip()
+    with open(filename, 'r', encoding='utf-8') as f:
+        content = f.read()
 
-    # If state wasn't found, fall back to default handling
-    print(f"[⚠️ Skipped Parsing] Filename: {filename}")
-    return "General Service", "Unknown City"
+    def replace_link(match):
+        link_text = match.group(1)
+        old_url = match.group(2)
 
-def keyword_from_filename(filename):
-    parts = filename.replace('.md', '').split('-')
-    if 'TX' in parts:
-        tx_index = parts.index('TX')
-        if tx_index >= 2:
-            city = parts[tx_index - 1]
-            service = ' '.join(parts[:tx_index - 1])
-            return f"{service} {city} TX"
-    return filename.replace('.md', '').replace('-', ' ')
+        # Extract filename from old URL
+        file_name = old_url.split("/")[-1]
 
-def build_internal_links(current_file, service, city, all_pages_info, max_links=4):
-    links = []
+        # Check if this file exists in current directory (i.e., pest-control repo)
+        if os.path.isfile(file_name):
+            new_url = NEW_REPO_BASE + "blob/main/" + file_name
+            return f"[{link_text}]({new_url})"
+        else:
+            print(f"❌ Removing broken link in {filename}: {file_name}")
+            return ''  # remove the link if file doesn't exist
 
-    same_city = [p for p in all_pages_info if p["city"] == city and p["filename"] != current_file]
-    random.shuffle(same_city)
+    # Replace or remove links
+    new_content, subs = markdown_link_pattern.subn(replace_link, content)
 
-    if len(same_city) >= max_links:
-        links = same_city[:max_links]
-    else:
-        links.extend(same_city)
-        remaining = max_links - len(links)
-        same_service = [p for p in all_pages_info if p["service"] == service and p["filename"] != current_file and p not in links]
-        random.shuffle(same_service)
-        links.extend(same_service[:remaining])
-
-    markdown_links = "\n".join([
-        f"- [{p['keyword']}](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/{p['filename']})"
-        for p in links
-    ])
-    return markdown_links
-
-def process_markdown_files():
-    all_files = [f for f in os.listdir('.') if f.endswith('.md')]
-    all_pages_info = []
-
-    for filename in all_files:
-        service, city = extract_city_service(filename)
-        keyword = keyword_from_filename(filename)
-        all_pages_info.append({
-            "filename": filename,
-            "service": service,
-            "city": city,
-            "keyword": keyword
-        })
-
-    for page in all_pages_info:
-        file_path = page["filename"]
-        try:
-            with open(file_path, 'r', encoding='utf-8') as f:
-                content = f.read()
-
-            # Remove old disclaimers
-            content = re.sub(
-                r"\*?IMPORTANT\s+\*\*Disclaimer:.*?\[Github\.com\]\.\s*",
-                "",
-                content,
-                flags=re.DOTALL
-            )
-
-            # Remove old internal links
-            content = re.sub(
-                r"## Internal Links\s*- \[.*?\)\s*",
-                "",
-                content,
-                flags=re.DOTALL
-            )
-
-            # Append disclaimer and links
-            content += f"\n\n{DISCLAIMER}\n"
-
-            internal_links = build_internal_links(
-                page["filename"], page["service"], page["city"], all_pages_info
-            )
-            if internal_links:
-                content += f"\n## Internal Links\n{internal_links}\n"
-
-            with open(file_path, 'w', encoding='utf-8') as f:
-                f.write(content)
-
-            print(f"✅ Processed: {file_path}")
-
-        except Exception as e:
-            print(f"❌ Error processing {file_path}: {e}")
-
-if __name__ == "__main__":
-    process_markdown_files()
+    # Save only if something changed
+    if subs > 0:
+        with open(filename, 'w', encoding='utf-8') as f:
+            f.write(new_content)
+        print(f"✅ Updated {subs} link(s) in: {filename}")

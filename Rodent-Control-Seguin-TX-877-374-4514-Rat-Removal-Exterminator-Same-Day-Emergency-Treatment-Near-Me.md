@@ -124,29 +124,29 @@ Don't let rodents compromise your property, health, or peace of mind. Our profes
 *Licensed, insured, and trusted throughout Seguin TX for comprehensive rodent management solutions.*
 
 
-- [Bed Bug Removal Seguin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Seguin-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Seguin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Seguin-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Seguin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Seguin-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Seguin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Seguin-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Seguin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Seguin-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Seguin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Seguin-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Seguin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Seguin-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Seguin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Seguin-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Seguin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Seguin-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Seguin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Seguin-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Seguin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Seguin-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Seguin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Seguin-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [ANT Control Seguin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Seguin-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Seguin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Seguin-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Seguin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Seguin-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Seguin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Seguin-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Seguin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Seguin-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Seguin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Seguin-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Emergency Pest Control Seguin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Seguin-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Roach Control Seguin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Seguin-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Seguin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Seguin-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Seguin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Seguin-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Roach Control Seguin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Seguin-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Seguin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Seguin-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [ANT Control Seguin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Seguin-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Seguin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Seguin-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Fly Control Seguin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Seguin-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Seguin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Seguin-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Seguin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Seguin-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Fly Control Seguin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Seguin-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -155,7 +155,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Bed Bug Removal Seguin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Seguin-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Seguin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Seguin-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Seguin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Seguin-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Seguin TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Seguin-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Seguin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Seguin-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Seguin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Seguin-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Seguin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Seguin-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Seguin TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Seguin-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

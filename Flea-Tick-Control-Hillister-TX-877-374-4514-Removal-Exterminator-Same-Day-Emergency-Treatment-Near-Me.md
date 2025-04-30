@@ -112,29 +112,29 @@ End the frustration of flea bites and the worry of tick-borne diseases. Our prof
 *Licensed, insured, and trusted throughout Hillister TX for comprehensive parasite control solutions.*
 
 
-- [Bed Bug Removal Hillister TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Hillister-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Hillister TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Hillister-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Fly Control Hillister TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Hillister-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Hillister TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Hillister-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Hillister TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Hillister-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Fly Control Hillister TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Hillister-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Hillister TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Hillister-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Hillister TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Hillister-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Fly Control Hillister TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Hillister-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Hillister TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Hillister-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Hillister TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Hillister-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Fly Control Hillister TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Hillister-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Wasp Control Hillister TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Hillister-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Hillister TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Hillister-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Hillister TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Hillister-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Hillister TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Hillister-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Hillister TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Hillister-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Hillister TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Hillister-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Emergency Pest Control Hillister TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Hillister-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Pest Control Hillister TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Hillister-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Hillister TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Hillister-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Hillister TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Hillister-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Pest Control Hillister TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Hillister-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Hillister TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Hillister-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Spider Control Hillister TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Hillister-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Hillister TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Hillister-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Hillister TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Hillister-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Hillister TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Hillister-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Hillister TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Hillister-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Hillister TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Hillister-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -143,7 +143,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Roach Control Hillister TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Hillister-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control Hillister TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Hillister-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Hillister TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Hillister-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Hillister TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Hillister-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Hillister TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Hillister-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Hillister TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Hillister-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Hillister TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Hillister-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Hillister TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Hillister-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

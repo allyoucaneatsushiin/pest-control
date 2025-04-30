@@ -112,29 +112,29 @@ End the frustration of flea bites and the worry of tick-borne diseases. Our prof
 *Licensed, insured, and trusted throughout Buda TX for comprehensive parasite control solutions.*
 
 
-- [Bed Bug Removal Buda TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Buda-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Buda TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Buda-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Fly Control Buda TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Buda-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Buda TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Buda-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Buda TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Buda-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Fly Control Buda TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Buda-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Buda TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Buda-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Buda TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Buda-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Fly Control Buda TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Buda-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Buda TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Buda-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Buda TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Buda-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Fly Control Buda TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Buda-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Emergency Pest Control Buda TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Buda-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Wasp Control Buda TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Buda-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Rodent Control Buda TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-Buda-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Buda TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Buda-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Wasp Control Buda TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Buda-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control Buda TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-Buda-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Spider Control Buda TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Buda-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Buda TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Buda-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Mosquito Control Buda TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Buda-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Buda TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Buda-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Buda TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Buda-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Mosquito Control Buda TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Buda-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Emergency Pest Control Buda TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Buda-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Mosquito Control Buda TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Buda-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal Buda TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Buda-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Buda TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Buda-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Mosquito Control Buda TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Buda-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Buda TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Buda-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -143,7 +143,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Roach Control Buda TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Buda-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control Buda TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Buda-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Buda TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Buda-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Buda TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Buda-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Roach Control Buda TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Buda-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Buda TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Buda-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Buda TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Buda-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Buda TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Buda-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)

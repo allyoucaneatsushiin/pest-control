@@ -126,29 +126,29 @@ Don't let flies compromise your health, comfort, or business reputation. Our pro
 *Licensed, insured, and trusted throughout Mabank TX for comprehensive fly management solutions.*
 
 
-- [Bed Bug Removal Mabank TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Mabank-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Mabank TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Mabank-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Mabank TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Mabank-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Mabank TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Mabank-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Mabank TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Mabank-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Mabank TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Mabank-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Mabank TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Mabank-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Mabank TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Mabank-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Mabank TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Mabank-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Mabank TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Mabank-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Mabank TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Mabank-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Mabank TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Mabank-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Roach Control Mabank TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Mabank-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Rodent Control Mabank TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-Mabank-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control Mabank TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Mabank-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Mabank TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Mabank-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control Mabank TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-Mabank-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Mabank TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Mabank-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Yellow Jacket Removal Mabank TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Mabank-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Mabank TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Mabank-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Mabank TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Mabank-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Mabank TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Mabank-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Mabank TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Mabank-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Mabank TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Mabank-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Mabank TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Mabank-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Mabank TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Mabank-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Roach Control Mabank TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Mabank-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Mabank TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Mabank-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Mabank TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Mabank-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Mabank TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Mabank-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -157,7 +157,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Rodent Control Mabank TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-Mabank-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Mabank TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Mabank-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control Mabank TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Mabank-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal Mabank TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Mabank-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control Mabank TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-Mabank-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Mabank TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Mabank-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Mabank TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Mabank-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Mabank TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Mabank-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

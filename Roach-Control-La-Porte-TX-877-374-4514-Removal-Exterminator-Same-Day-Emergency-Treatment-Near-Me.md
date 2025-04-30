@@ -154,29 +154,29 @@ Don't let cockroaches threaten your health and peace of mind. Our professional r
 *Licensed, bonded, and insured • EPA-approved methods • Satisfaction guarantee*
 
 
-- [Bed Bug Removal La Porte TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-La-Porte-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control La Porte TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-La-Porte-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control La Porte TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-La-Porte-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal La Porte TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-La-Porte-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control La Porte TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-La-Porte-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control La Porte TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-La-Porte-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal La Porte TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-La-Porte-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control La Porte TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-La-Porte-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control La Porte TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-La-Porte-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal La Porte TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-La-Porte-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control La Porte TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-La-Porte-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control La Porte TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-La-Porte-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Flea Tick Control La Porte TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-La-Porte-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal La Porte TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-La-Porte-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control La Porte TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-La-Porte-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control La Porte TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-La-Porte-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal La Porte TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-La-Porte-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control La Porte TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-La-Porte-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Emergency Pest Control La Porte TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-La-Porte-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Rodent Control La Porte TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-La-Porte-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control La Porte TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-La-Porte-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control La Porte TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-La-Porte-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Rodent Control La Porte TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-La-Porte-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control La Porte TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-La-Porte-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Emergency Pest Control La Porte TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-La-Porte-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Rodent Control La Porte TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-La-Porte-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control La Porte TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-La-Porte-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control La Porte TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-La-Porte-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Rodent Control La Porte TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-La-Porte-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control La Porte TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-La-Porte-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -185,7 +185,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Spider Control La Porte TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-La-Porte-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal La Porte TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-La-Porte-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control La Porte TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-La-Porte-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control La Porte TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-La-Porte-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control La Porte TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-La-Porte-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal La Porte TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-La-Porte-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control La Porte TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-La-Porte-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control La Porte TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-La-Porte-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

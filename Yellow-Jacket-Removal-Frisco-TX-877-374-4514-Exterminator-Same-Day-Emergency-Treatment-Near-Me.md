@@ -98,19 +98,19 @@ Don't live in fear of yellow jackets around your Frisco TX home or business. Con
 *Licensed, insured, and trusted throughout Frisco TX for all stinging insect control needs.*
 
 
-- [Bed Bug Removal Frisco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Frisco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Frisco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Frisco-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Frisco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Frisco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Frisco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Frisco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Frisco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Frisco-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Frisco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Frisco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Frisco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Frisco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Frisco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Frisco-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Frisco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Frisco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Frisco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Frisco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Frisco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Frisco-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Frisco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Frisco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Fly Control Frisco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Frisco-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control Frisco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Frisco-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Frisco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Frisco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Frisco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Frisco-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Frisco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Frisco-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Frisco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Frisco-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -119,7 +119,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Roach Control Frisco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Frisco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control Frisco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Frisco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Frisco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Frisco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Frisco TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Frisco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Frisco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Frisco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control Frisco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Frisco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Frisco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Frisco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Frisco TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Frisco-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

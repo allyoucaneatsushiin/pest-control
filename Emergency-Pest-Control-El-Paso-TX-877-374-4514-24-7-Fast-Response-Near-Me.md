@@ -128,29 +128,29 @@ Don't let pest emergencies threaten your home, business, or health. Our El Paso 
 **Call [📞 (877)-374-4514](https://pest-control-4514.netlify.app) now for immediate emergency pest control in El Paso TX** 📞
 
 
-- [Bed Bug Removal El Paso TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-El-Paso-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control El Paso TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-El-Paso-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control El Paso TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-El-Paso-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal El Paso TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-El-Paso-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control El Paso TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-El-Paso-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control El Paso TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-El-Paso-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal El Paso TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-El-Paso-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control El Paso TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-El-Paso-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control El Paso TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-El-Paso-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal El Paso TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-El-Paso-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control El Paso TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-El-Paso-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control El Paso TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-El-Paso-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Roach Control El Paso TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-El-Paso-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal El Paso TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-El-Paso-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control El Paso TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-El-Paso-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control El Paso TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-El-Paso-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal El Paso TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-El-Paso-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control El Paso TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-El-Paso-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Fly Control El Paso TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-El-Paso-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Roach Control El Paso TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-El-Paso-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal El Paso TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-El-Paso-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control El Paso TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-El-Paso-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control El Paso TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-El-Paso-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal El Paso TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-El-Paso-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Flea Tick Control El Paso TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-El-Paso-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control El Paso TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-El-Paso-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal El Paso TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-El-Paso-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control El Paso TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-El-Paso-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control El Paso TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-El-Paso-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal El Paso TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-El-Paso-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -159,7 +159,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Roach Control El Paso TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-El-Paso-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control El Paso TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-El-Paso-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal El Paso TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-El-Paso-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control El Paso TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-El-Paso-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control El Paso TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-El-Paso-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control El Paso TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-El-Paso-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal El Paso TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-El-Paso-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control El Paso TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-El-Paso-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)

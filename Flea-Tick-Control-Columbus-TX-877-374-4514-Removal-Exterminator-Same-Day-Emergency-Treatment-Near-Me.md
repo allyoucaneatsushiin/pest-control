@@ -112,29 +112,29 @@ End the frustration of flea bites and the worry of tick-borne diseases. Our prof
 *Licensed, insured, and trusted throughout Columbus TX for comprehensive parasite control solutions.*
 
 
-- [Bed Bug Removal Columbus TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Columbus-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Columbus TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Columbus-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Fly Control Columbus TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Columbus-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Columbus TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Columbus-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Columbus TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Columbus-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Fly Control Columbus TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Columbus-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Columbus TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Columbus-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Columbus TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Columbus-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Fly Control Columbus TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Columbus-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Columbus TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Columbus-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Columbus TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Columbus-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Fly Control Columbus TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Columbus-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [ANT Control Columbus TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Columbus-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Columbus TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Columbus-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Columbus TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Columbus-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Columbus TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Columbus-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Columbus TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Columbus-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Columbus TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Columbus-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Fly Control Columbus TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Columbus-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Roach Control Columbus TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Columbus-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Columbus TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Columbus-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Columbus TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Columbus-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Columbus TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Columbus-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Columbus TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Columbus-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Roach Control Columbus TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Columbus-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Columbus TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Columbus-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control Columbus TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Columbus-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Columbus TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Columbus-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Columbus TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Columbus-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Columbus TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Columbus-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -143,7 +143,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Mosquito Control Columbus TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Columbus-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Rodent Control Columbus TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-Columbus-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Columbus TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Columbus-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Columbus TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Columbus-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Columbus TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Columbus-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control Columbus TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-Columbus-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Columbus TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Columbus-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Columbus TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Columbus-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

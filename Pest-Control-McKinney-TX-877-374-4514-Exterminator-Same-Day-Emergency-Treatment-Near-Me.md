@@ -132,29 +132,29 @@ Don't let pests compromise your property's value and your peace of mind. Our pro
 *Licensed, bonded, and insured throughout McKinney TX for comprehensive pest management solutions.*
 
 
-- [Bed Bug Removal McKinney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-McKinney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control McKinney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-McKinney-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control McKinney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-McKinney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal McKinney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-McKinney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control McKinney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-McKinney-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control McKinney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-McKinney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal McKinney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-McKinney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control McKinney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-McKinney-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control McKinney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-McKinney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal McKinney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-McKinney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control McKinney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-McKinney-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control McKinney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-McKinney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [ANT Control McKinney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-McKinney-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control McKinney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-McKinney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal McKinney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-McKinney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control McKinney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-McKinney-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control McKinney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-McKinney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal McKinney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-McKinney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Fly Control McKinney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-McKinney-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control McKinney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-McKinney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control McKinney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-McKinney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control McKinney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-McKinney-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control McKinney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-McKinney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control McKinney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-McKinney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Roach Control McKinney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-McKinney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control McKinney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-McKinney-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control McKinney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-McKinney-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control McKinney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-McKinney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control McKinney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-McKinney-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control McKinney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-McKinney-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -163,7 +163,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Roach Control McKinney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-McKinney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control McKinney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-McKinney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control McKinney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-McKinney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control McKinney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-McKinney-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control McKinney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-McKinney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control McKinney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-McKinney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control McKinney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-McKinney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control McKinney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-McKinney-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)

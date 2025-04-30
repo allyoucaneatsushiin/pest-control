@@ -154,29 +154,29 @@ Don't let cockroaches threaten your health and peace of mind. Our professional r
 *Licensed, bonded, and insured • EPA-approved methods • Satisfaction guarantee*
 
 
-- [Bed Bug Removal Hereford TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Hereford-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Hereford TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Hereford-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Hereford TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Hereford-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Hereford TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Hereford-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Hereford TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Hereford-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Hereford TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Hereford-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Hereford TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Hereford-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Hereford TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Hereford-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Hereford TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Hereford-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Hereford TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Hereford-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Hereford TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Hereford-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Hereford TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Hereford-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Mosquito Control Hereford TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Hereford-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Rodent Control Hereford TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-Hereford-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control Hereford TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Hereford-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Hereford TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Hereford-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control Hereford TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-Hereford-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Hereford TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Hereford-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Flea Tick Control Hereford TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Hereford-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Hereford TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Hereford-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Hereford TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Hereford-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control Hereford TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Hereford-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Hereford TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Hereford-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Hereford TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Hereford-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Spider Control Hereford TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Hereford-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control Hereford TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Hereford-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Hereford TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Hereford-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Spider Control Hereford TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Hereford-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Hereford TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Hereford-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Hereford TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Hereford-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -185,7 +185,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Emergency Pest Control Hereford TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Hereford-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Bed Bug Removal Hereford TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Hereford-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Hereford TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Hereford-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Hereford TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Hereford-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Hereford TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Hereford-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Bed Bug Removal Hereford TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Hereford-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Hereford TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Hereford-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Hereford TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Hereford-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

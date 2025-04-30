@@ -98,19 +98,19 @@ Don't live in fear of yellow jackets around your Temple TX home or business. Con
 *Licensed, insured, and trusted throughout Temple TX for all stinging insect control needs.*
 
 
-- [Bed Bug Removal Temple TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Temple-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Temple TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Temple-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Temple TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Temple-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Temple TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Temple-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Temple TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Temple-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Temple TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Temple-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Temple TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Temple-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Temple TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Temple-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Temple TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Temple-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Temple TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Temple-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Temple TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Temple-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Temple TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Temple-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Pest Control Temple TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Temple-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Roach Control Temple TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Temple-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control Temple TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Temple-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Temple TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Temple-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Temple TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Temple-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Temple TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Temple-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -119,7 +119,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Emergency Pest Control Temple TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Temple-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Fly Control Temple TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Temple-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Temple TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Temple-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal Temple TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Temple-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Temple TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Temple-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Fly Control Temple TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Temple-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Temple TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Temple-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Temple TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Temple-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

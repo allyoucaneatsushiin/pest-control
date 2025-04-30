@@ -128,29 +128,29 @@ Don't let pest emergencies threaten your home, business, or health. Our New Cane
 **Call [📞 (877)-374-4514](https://pest-control-4514.netlify.app) now for immediate emergency pest control in New Caney TX** 📞
 
 
-- [Bed Bug Removal New Caney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-New-Caney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control New Caney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-New-Caney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control New Caney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-New-Caney-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal New Caney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-New-Caney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control New Caney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-New-Caney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control New Caney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-New-Caney-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal New Caney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-New-Caney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control New Caney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-New-Caney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control New Caney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-New-Caney-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal New Caney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-New-Caney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control New Caney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-New-Caney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control New Caney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-New-Caney-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Rodent Control New Caney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Rodent-Control-New-Caney-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control New Caney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-New-Caney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal New Caney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-New-Caney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Rodent Control New Caney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-New-Caney-TX-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control New Caney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-New-Caney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal New Caney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-New-Caney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Wasp Control New Caney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-New-Caney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control New Caney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-New-Caney-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Roach Control New Caney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-New-Caney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control New Caney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-New-Caney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control New Caney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-New-Caney-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control New Caney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-New-Caney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Flea Tick Control New Caney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-New-Caney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control New Caney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-New-Caney-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal New Caney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-New-Caney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control New Caney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-New-Caney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control New Caney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-New-Caney-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal New Caney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-New-Caney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -159,7 +159,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Spider Control New Caney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-New-Caney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal New Caney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-New-Caney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control New Caney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-New-Caney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Fly Control New Caney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-New-Caney-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control New Caney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-New-Caney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal New Caney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-New-Caney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control New Caney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-New-Caney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control New Caney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-New-Caney-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)

@@ -98,19 +98,19 @@ Don't live in fear of yellow jackets around your Oglesby TX home or business. Co
 *Licensed, insured, and trusted throughout Oglesby TX for all stinging insect control needs.*
 
 
-- [Bed Bug Removal Oglesby TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Oglesby-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Oglesby TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Oglesby-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Oglesby TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Oglesby-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Oglesby TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Oglesby-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Oglesby TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Oglesby-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Oglesby TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Oglesby-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Oglesby TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Oglesby-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Oglesby TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Oglesby-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Oglesby TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Oglesby-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Oglesby TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Oglesby-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Oglesby TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Oglesby-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Oglesby TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Oglesby-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Wasp Control Oglesby TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Oglesby-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Oglesby TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Oglesby-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Oglesby TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Oglesby-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Oglesby TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Oglesby-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Oglesby TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Oglesby-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Oglesby TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Oglesby-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -119,7 +119,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Pest Control Oglesby TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Oglesby-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Bed Bug Removal Oglesby TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Oglesby-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control Oglesby TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Oglesby-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Oglesby TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Oglesby-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Oglesby TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Oglesby-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Oglesby TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Oglesby-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control Oglesby TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Oglesby-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Oglesby TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Oglesby-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

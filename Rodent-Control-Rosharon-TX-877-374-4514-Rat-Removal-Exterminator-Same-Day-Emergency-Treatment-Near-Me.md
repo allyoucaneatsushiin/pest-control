@@ -124,29 +124,29 @@ Don't let rodents compromise your property, health, or peace of mind. Our profes
 *Licensed, insured, and trusted throughout Rosharon TX for comprehensive rodent management solutions.*
 
 
-- [Bed Bug Removal Rosharon TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Rosharon-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Rosharon TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Rosharon-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Rosharon TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Rosharon-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Rosharon TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Rosharon-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Rosharon TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Rosharon-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Rosharon TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Rosharon-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Rosharon TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Rosharon-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Rosharon TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Rosharon-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Rosharon TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Rosharon-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Rosharon TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Rosharon-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Rosharon TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Rosharon-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Rosharon TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Rosharon-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Spider Control Rosharon TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Rosharon-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Rosharon TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Pest-Control-Rosharon-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control Rosharon TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Rosharon-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Rosharon TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Rosharon-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Rosharon TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Rosharon-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control Rosharon TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Rosharon-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Roach Control Rosharon TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Rosharon-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Rosharon TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Rosharon-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Rosharon TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Rosharon-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Rosharon TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Rosharon-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Rosharon TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Rosharon-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Rosharon TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Rosharon-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Flea Tick Control Rosharon TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Rosharon-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control Rosharon TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Rosharon-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Rosharon TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Rosharon-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control Rosharon TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Rosharon-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Rosharon TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Rosharon-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Rosharon TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Rosharon-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -155,7 +155,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Roach Control Rosharon TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Rosharon-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Rosharon TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Rosharon-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Mosquito Control Rosharon TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Mosquito-Control-Rosharon-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Rosharon TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Wasp-Control-Rosharon-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Rosharon TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Rosharon-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Rosharon TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Rosharon-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Mosquito Control Rosharon TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Rosharon-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Rosharon TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Rosharon-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

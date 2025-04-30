@@ -114,24 +114,24 @@ Don't let wasps control your outdoor spaces or threaten your safety. Our profess
 *Licensed, insured, and trusted throughout Bonney TX for all stinging insect management needs.*
 
 
-- [Bed Bug Removal Bonney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Bonney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Bonney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Bonney-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Bonney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Bonney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Bonney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Bonney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Bonney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Bonney-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Bonney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Bonney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Bonney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Bed-Bug-Removal-Bonney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Bonney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Bonney-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Bonney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Bonney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Bonney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Bonney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Bonney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Bonney-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Bonney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Bonney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Fly Control Bonney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Fly-Control-Bonney-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Bonney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Bonney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Roach Control Bonney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Roach-Control-Bonney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Bonney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Bonney-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Bonney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Bonney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Roach Control Bonney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Bonney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Emergency Pest Control Bonney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Bonney-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
-- [Flea Tick Control Bonney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Flea-Tick-Control-Bonney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Bonney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Bonney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Bonney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Bonney-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Flea Tick Control Bonney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Bonney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Bonney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Bonney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -140,7 +140,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [ANT Control Bonney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/ANT-Control-Bonney-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Yellow Jacket Removal Bonney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Yellow-Jacket-Removal-Bonney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Spider Control Bonney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Spider-Control-Bonney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Bonney TX](https://github.com/allyoucaneatsushiin/plumbing-texas/blob/main/Emergency-Pest-Control-Bonney-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [ANT Control Bonney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Bonney-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Yellow Jacket Removal Bonney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Bonney-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Spider Control Bonney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Bonney-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Emergency Pest Control Bonney TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Bonney-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
