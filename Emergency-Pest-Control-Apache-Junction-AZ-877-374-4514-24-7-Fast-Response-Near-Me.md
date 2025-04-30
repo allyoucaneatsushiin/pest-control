@@ -5,6 +5,9 @@
   <a href="https://pest-control-4514.netlify.app" target="_blank" style="color: #007BFF; text-decoration: none;">📞 Call Now: (877)-374-4514 ☎️💧</a>
 </p>
 
+<p align="center" style="font-size: 1.2em; font-weight: bold; margin: 20px 0;">
+</p>
+
 ## Immediate Pest Control Solutions for Apache Junction AZ Homes & Businesses
 
 When unwanted pests invade your Apache Junction AZ property, you need fast, effective solutions from experienced professionals. Our emergency pest control team is available 24/7 to tackle urgent infestations and protect your home or business.

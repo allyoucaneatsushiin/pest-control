@@ -5,6 +5,9 @@
   <a href="https://pest-control-4514.netlify.app" target="_blank" style="color: #007BFF; text-decoration: none;">📞 Call Now: (877)-374-4514 ☎️💧</a>
 </p>
 
+<p align="center" style="font-size: 1.2em; font-weight: bold; margin: 20px 0;">
+</p>
+
 ## Effective Mosquito Treatment for Your Derry Yard | Call  Today!
 
 Are mosquitoes ruining your outdoor activities in Derry? These disease-carrying pests don't just leave itchy bites—they can transmit serious illnesses like West Nile virus, Zika, and encephalitis. Our expert mosquito control technicians provide comprehensive solutions to eliminate existing mosquito populations and prevent future infestations, allowing you to enjoy your outdoor spaces again.

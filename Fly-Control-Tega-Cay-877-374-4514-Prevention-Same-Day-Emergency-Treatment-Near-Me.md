@@ -5,6 +5,9 @@
   <a href="https://pest-control-4514.netlify.app" target="_blank" style="color: #007BFF; text-decoration: none;">📞 Call Now: (877)-374-4514 ☎️💧</a>
 </p>
 
+<p align="center" style="font-size: 1.2em; font-weight: bold; margin: 20px 0;">
+</p>
+
 ## Expert Fly Control Service Near Me in Tega Cay - Same-Day Response
 
 Are flies invading your Tega Cay home or business? These disease-carrying pests do more than just irritate—they pose serious health risks through contamination of food preparation areas and surfaces. Our professional fly control specialists deliver comprehensive elimination strategies designed to rid your property of flies and prevent their return.

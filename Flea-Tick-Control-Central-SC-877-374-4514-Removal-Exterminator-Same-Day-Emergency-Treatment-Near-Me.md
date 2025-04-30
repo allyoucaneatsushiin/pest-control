@@ -5,6 +5,9 @@
   <a href="https://pest-control-4514.netlify.app" target="_blank" style="color: #007BFF; text-decoration: none;">📞 Call Now: (877)-374-4514 ☎️💧</a>
 </p>
 
+<p align="center" style="font-size: 1.2em; font-weight: bold; margin: 20px 0;">
+</p>
+
 ## Expert Flea Control Near Me in Central SC - Same-Day Service Available
 
 Is your Central SC home under siege from fleas or ticks? These persistent parasites can quickly transform from a minor nuisance into a full-blown infestation, threatening your family's comfort and your pets' health. Our professional flea and tick control specialists provide comprehensive elimination services to restore peace to your home environment.

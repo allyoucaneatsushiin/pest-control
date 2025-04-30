@@ -5,6 +5,9 @@
   <a href="https://pest-control-4514.netlify.app" target="_blank" style="color: #007BFF; text-decoration: none;">📞 Call Now: (877)-374-4514 ☎️💧</a>
 </p>
 
+<p align="center" style="font-size: 1.2em; font-weight: bold; margin: 20px 0;">
+</p>
+
 ## Struggling with Bed Bugs in West Lake Hills TX? Call  Now for Expert Extermination!
 
 Are you noticing mysterious bites on your skin or tiny blood spots on your bedding? Don't wait until a small problem becomes an infestation. Our West Lake Hills TX bed bug specialists provide comprehensive treatment solutions to eliminate these persistent pests from your home or business.

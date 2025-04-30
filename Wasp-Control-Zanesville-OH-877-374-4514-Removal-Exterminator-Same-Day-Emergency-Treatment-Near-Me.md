@@ -5,6 +5,9 @@
   <a href="https://pest-control-4514.netlify.app" target="_blank" style="color: #007BFF; text-decoration: none;">📞 Call Now: (877)-374-4514 ☎️💧</a>
 </p>
 
+<p align="center" style="font-size: 1.2em; font-weight: bold; margin: 20px 0;">
+</p>
+
 ## Expert Wasp Exterminator Near Me in Zanesville OH - Immediate Response Available
 
 Is your Zanesville OH property being threatened by aggressive wasps? These stinging insects can quickly transform outdoor spaces into danger zones, putting your family, pets, and guests at risk. Our professional wasp control specialists deliver swift, effective elimination of wasp nests and comprehensive protection for your property.

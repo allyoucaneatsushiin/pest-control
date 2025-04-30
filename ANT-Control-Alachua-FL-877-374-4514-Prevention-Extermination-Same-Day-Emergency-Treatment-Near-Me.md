@@ -5,6 +5,9 @@
   <a href="https://pest-control-4514.netlify.app" target="_blank" style="color: #007BFF; text-decoration: none;">📞 Call Now: (877)-374-4514 ☎️💧</a>
 </p>
 
+<p align="center" style="font-size: 1.2em; font-weight: bold; margin: 20px 0;">
+</p>
+
 ## Professional Ant Exterminator Near Me in Alachua FL - Fast & Effective Solutions
 
 Is your Alachua FL home or business battling persistent ant invasions? These tiny invaders may seem harmless, but they can contaminate food, damage property, and create unsanitary conditions. Our certified Alachua FL ant control specialists deliver comprehensive elimination strategies designed to eradicate existing colonies and prevent future ant infestations throughout your property.

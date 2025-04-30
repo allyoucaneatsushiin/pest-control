@@ -5,6 +5,9 @@
   <a href="https://pest-control-4514.netlify.app" target="_blank" style="color: #007BFF; text-decoration: none;">📞 Call Now: (877)-374-4514 ☎️💧</a>
 </p>
 
+<p align="center" style="font-size: 1.2em; font-weight: bold; margin: 20px 0;">
+</p>
+
 ## Expert Spider Exterminator Services in Yucaipa - Same-Day Response Available
 
 Is your Yucaipa property experiencing an unwanted spider invasion? While most spiders are harmless, some species pose serious health risks to you and your family. Our certified Yucaipa spider control specialists deliver comprehensive elimination strategies designed to remove existing spiders and prevent future infestations throughout your home or business.
