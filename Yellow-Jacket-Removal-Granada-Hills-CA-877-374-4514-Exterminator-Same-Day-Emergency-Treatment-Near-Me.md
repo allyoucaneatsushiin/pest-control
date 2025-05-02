@@ -98,7 +98,7 @@ Don't live in fear of yellow jackets around your Granada Hills CA home or busine
 *Licensed, insured, and trusted throughout Granada Hills CA for all stinging insect control needs.*
 
 
-- [Wasp Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-West-Lake-Hills-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control West Lake Hills TX TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-West-Lake-Hills-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 - [Spider Control Granada Hills CA 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Granada-Hills-CA-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 - [Flea Tick Control El Dorado Hills CA 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-El-Dorado-Hills-CA-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
@@ -110,6 +110,6 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 ## Internal Links
 - [Bed Bug Removal El Dorado Hills CA 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-El-Dorado-Hills-CA-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-West-Lake-Hills-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Emergency Pest Control West Lake Hills TX TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-West-Lake-Hills-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
 - [Wasp Control Granada Hills CA 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Granada-Hills-CA-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control West Lake Hills TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-West-Lake-Hills-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control West Lake Hills TX TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-West-Lake-Hills-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
