@@ -57,7 +57,7 @@ Our Apache Junction AZ spider management programs address all aspects of spider 
 
 - **Web Inhibiting Sprays**: Preventative applications to discourage web construction
 
-- **UV Inspection Services**: Advanced detection of spider activity in hard-to-see areas
+- **UV Inspection Services**: Advance NCd detection of spider activity in hard-to-see areas
 
 ## Emergency Spider Exterminator Services - 24/7 Response in Apache Junction AZ
 

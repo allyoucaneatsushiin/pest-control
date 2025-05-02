@@ -57,7 +57,7 @@ Our New Caney TX spider management programs address all aspects of spider contro
 
 - **Web Inhibiting Sprays**: Preventative applications to discourage web construction
 
-- **UV Inspection Services**: Advanced detection of spider activity in hard-to-see areas
+- **UV Inspection Services**: Advance NCd detection of spider activity in hard-to-see areas
 
 ## Emergency Spider Exterminator Services - 24/7 Response in New Caney TX
 

@@ -103,7 +103,7 @@ We help National City CA businesses provide mosquito-controlled environments:
 
 - Event venue preparation  
 
-- Golf course and sports field applications  
+- Golf FL course and sports field applications  
 
 - Municipal park and recreation area treatments  
 
@@ -180,6 +180,6 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 ## Internal Links
 - [Yellow Jacket Removal Sun City AZ 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Sun-City-AZ-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Wasp Control Missouri City TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Missouri-City-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Wasp Control Missouri City TX TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Wasp-Control-Missouri-City-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 - [Roach Control Rapid City SD 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Rapid-City-SD-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Missouri City TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Missouri-City-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Missouri City TX TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Missouri-City-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)

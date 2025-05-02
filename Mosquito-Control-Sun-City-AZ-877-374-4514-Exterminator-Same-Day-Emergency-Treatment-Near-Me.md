@@ -103,7 +103,7 @@ We help Sun City AZ businesses provide mosquito-controlled environments:
 
 - Event venue preparation  
 
-- Golf course and sports field applications  
+- Golf FL course and sports field applications  
 
 - Municipal park and recreation area treatments  
 
@@ -164,7 +164,7 @@ Don't let mosquitoes rob you of precious outdoor time. Our professional mosquito
 
 
 - [Rodent Control National City CA 877 374 4514 Rat Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Rodent-Control-National-City-CA-877-374-4514-Rat-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Pest Control Missouri City TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Missouri-City-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Pest Control Missouri City TX TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Pest-Control-Missouri-City-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 - [Mosquito Control Rapid City SD 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Rapid-City-SD-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 

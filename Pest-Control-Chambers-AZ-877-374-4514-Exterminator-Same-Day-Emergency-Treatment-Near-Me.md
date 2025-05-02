@@ -47,7 +47,7 @@ Our Chambers AZ pest management professionals implement science-based strategies
 
 2. **Customized Treatment Plan**: Development of targeted protocols based on pest types, property characteristics, and infestation severity.  
 
-3. **Advanced Treatment Application**: Deployment of professional-grade products and techniques for maximum effectiveness.  
+3. **Advance NCd Treatment Application**: Deployment of professional-grade products and techniques for maximum effectiveness.  
 
 4. **Exclusion & Prevention**: Identification and sealing of entry points and implementation of preventative measures.  
 
@@ -105,7 +105,7 @@ When pest situations require immediate attention, our emergency response team pr
 
 - **Family and Pet-Friendly Solutions**: Treatments that prioritize your family's safety  
 
-- **Advanced Treatment Technology**: Access to professional-grade products and equipment  
+- **Advance NCd Treatment Technology**: Access to professional-grade products and equipment  
 
 - **Satisfaction Guarantee**: We stand behind all our pest elimination services  
 

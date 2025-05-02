@@ -118,7 +118,7 @@ End the frustration of flea bites and the worry of tick-borne diseases. Our prof
 
 
 - [Mosquito Control Rapid City SD 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Rapid-City-SD-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Flea Tick Control Missouri City TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Missouri-City-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Flea Tick Control Missouri City TX TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Missouri-City-TX-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 - [Roach Control Sun City AZ 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Roach-Control-Sun-City-AZ-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 

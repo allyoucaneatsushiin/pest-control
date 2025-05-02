@@ -103,7 +103,7 @@ We help Yreka CA businesses provide mosquito-controlled environments:
 
 - Event venue preparation  
 
-- Golf course and sports field applications  
+- Golf FL course and sports field applications  
 
 - Municipal park and recreation area treatments  
 

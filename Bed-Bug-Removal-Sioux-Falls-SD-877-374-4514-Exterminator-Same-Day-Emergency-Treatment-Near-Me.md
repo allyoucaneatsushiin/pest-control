@@ -132,19 +132,19 @@ Don't let another night pass with these unwelcome pests. Contact our Sioux Falls
 *Licensed, bonded, and insured • EPA-approved methods • Satisfaction guaranteed*
 
 
-- [ANT Control Wichita Falls TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Wichita-Falls-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Wichita KS Falls TX TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Wichita KS-Falls-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
 - [Mosquito Control Sioux Falls SD 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Sioux-Falls-SD-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Wichita Falls TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Wichita-Falls-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Emergency Pest Control Wichita KS Falls TX TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Wichita KS-Falls-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
 
 
 - [Emergency Pest Control Sioux Falls SD 877 374 4514 24 7 Fast Response Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Sioux-Falls-SD-877-374-4514-24-7-Fast-Response-Near-Me.md)
 - [Flea Tick Control Sioux Falls SD 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Flea-Tick-Control-Sioux-Falls-SD-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [ANT Control Wichita Falls TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Wichita-Falls-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
+- [ANT Control Wichita KS Falls TX TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/ANT-Control-Wichita KS-Falls-TX-877-374-4514-Prevention-Extermination-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
-- [Bed Bug Removal Wichita Falls TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Wichita-Falls-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Bed Bug Removal Wichita KS Falls TX TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Bed-Bug-Removal-Wichita KS-Falls-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 - [Fly Control Sioux Falls SD 877 374 4514 Prevention Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Sioux-Falls-SD-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Mosquito Control Wichita Falls TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Wichita-Falls-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Mosquito Control Wichita KS Falls TX TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Mosquito-Control-Wichita KS-Falls-TX-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 
 
 *IMPORTANT **Disclaimer:**  
@@ -153,7 +153,7 @@ This site [Github.com] is a free service to assist homeowners in connecting with
 
 
 ## Internal Links
-- [Fly Control Wichita Falls TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Wichita-Falls-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
+- [Fly Control Wichita KS Falls TX TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Fly-Control-Wichita KS-Falls-TX-877-374-4514-Prevention-Same-Day-Emergency-Treatment-Near-Me.md)
 - [Spider Control Sioux Falls SD 877 374 4514 Removal Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Spider-Control-Sioux-Falls-SD-877-374-4514-Removal-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
 - [Yellow Jacket Removal Sioux Falls SD 877 374 4514 Exterminator Same Day Emergency Treatment Near Me](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Yellow-Jacket-Removal-Sioux-Falls-SD-877-374-4514-Exterminator-Same-Day-Emergency-Treatment-Near-Me.md)
-- [Emergency Pest Control Wichita Falls TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Wichita-Falls-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
+- [Emergency Pest Control Wichita KS Falls TX TX](https://github.com/allyoucaneatsushiin/pest-control/blob/main/Emergency-Pest-Control-Wichita KS-Falls-TX-877-374-4514-24-7-Fast-Response-Near-Me.md)
